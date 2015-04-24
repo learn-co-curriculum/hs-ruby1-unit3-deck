@@ -1,0 +1,1 @@
+###[Here](https://docs.google.com/presentation/d/1XFklyQuHRVgEgERYsHcyhIniOL3kewq6-Ajjp5HiPt4/edit?usp=sharing) is the Day 3 Deck
